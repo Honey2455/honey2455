@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Code
 - 💞️ I’m looking to collaborate on Visuality
 - 📫 How to reach me My insta id @its_deep.harman
-- If //you want to advice then please .. Its my pleasure
+- If you want to advice then please .. Its my pleasure
 
 
 <!---
